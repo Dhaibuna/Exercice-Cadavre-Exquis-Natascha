@@ -1,5 +1,6 @@
 # We are all a little bit mad here ...
 
+
 like when I eat pasta at 10am :) On the evening I often eat kellog's... why not ? You know this film were people sit on toilet bowl to eat ( of course its in the dinner room ! Stay decent ! ) ? Well ... that's me ! 
 
 - What, why are you so serious ? You know they used to say I ve issues ... but no, not at all.
@@ -16,3 +17,8 @@ Cupcake ipsum dolor sit amet sugar plum gingerbread liquorice. Dessert bonbon ma
 -tomi
 
 함께 가지고 다니면 종이라도 더 가볍습니다.
+
+# In a distant future ...
+
+*Un ouragan s'empare de Los Angeles. Des milliers de requins s'abattent sur la ville et terrorisent la population. Fin, un surfer également propriétaire de bar, accompagné de ses amis Baz et Nova, part à l'aventure afin de sauver son ex-femme April et leur fille Claudia.*
+
