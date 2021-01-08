@@ -4,7 +4,7 @@ like when I eat pasta at 10am :) On the evening I often eat kellog's... why not 
 
 - What, why are you so serious ? You know they used to say I ve issues ... but no, not at all.
 
-
+我也不过是会把拉面和披萨一起吃 干嘛大惊小怪的 你们这样才奇怪呢
 
 #### Funny story
 
