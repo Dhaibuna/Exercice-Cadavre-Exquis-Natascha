@@ -6,3 +6,7 @@ like when I eat pasta at 10am :) On the evening I often eat kellog's... why not 
 
 
 
+#### Funny story
+
+> I hate it when people see me at the supermarket and they are like: "Hey, what are you doing here ?" !
+> And I'm like : "You know .... Hunting Animals ...!"
